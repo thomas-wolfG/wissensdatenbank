@@ -4,7 +4,7 @@
 
 Klagen Männer ab 40 über Symptome wie Antriebslosigkeit, Erektionsstörungen oder Schwitzen, ist oft von den "Wechseljahren des Mannes", Andropause oder PADAM-Syndrom die Rede. Was ist dran am Phänomen und was hilft?
 
-*von Lucia Hennerici, rbb*
+### von Lucia Hennerici, rbb
 
 Die weibliche Menopause und mögliche Symptome sind gut bekannt. Aber gibt es ein männliches Pendant? Die "Andropause"? Hinter dem Begriff stecken die griechischen Worte für "Mann" und "Ende". Oft werden in der Gesundheitsberichterstattung aber auch Begriffe wie: Klimakterium virile, PADAM-Syndrom (partielles Androgendefizit des alternden Mannes), Andropenie oder Aging male (Syndrom) verwendet.
 
